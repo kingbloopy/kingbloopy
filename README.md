@@ -1,5 +1,5 @@
 I am an experienced producer with a strong foundation in leading teams and collaborating with cross-functional groups to execute complex product development cycles. My expertise spans digital strategy, project management, product ownership, UI/web design, e-commerce, operations, client success, and software engineering. I’ve thrived in dynamic, multi-faceted roles, allowing me to wear many hats and contribute effectively to both the strategic and technical aspects of projects. With a focus on clear communication, collaboration, and decision-making, I am skilled in balancing multiple projects simultaneously while maintaining strong client relationships and delivering results in fast-paced environments.
 
-Outside of work, you can find me embracing the outdoors—whether it’s mountain biking, snowboarding, climbing, hiking, trail running, camping, or river rafting. I’m passionate about living life to the fullest and bringing that same energy and focus to my professional endeavors.
+Outside of work, you can find me embracing the outdoors. Whether it’s mountain biking, snowboarding, climbing, hiking, trail running, camping, or river rafting. I’m passionate about living life to the fullest and bringing that same energy and focus to my professional endeavors.
 
  🌸 Find me on LinkedIn! https://www.linkedin.com/in/maggie-mae-mcdonald/
